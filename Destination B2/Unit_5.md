@@ -74,6 +74,45 @@ Sometimes it is more appropriate to use **be going to** rather than **will**.
 
 ## Prepositions of time and place
 
-I
-HATE
-ENGLISH
+|                           |                                                                                                                                    |
+| ------------------------- | ---------------------------------------------------------------------------------------------------------------------------------- |
+| Key prepositions of time  | in: use in year, month, morning, season (in 1992, in August, in morning, in winter), on: use in day in month, day in week, holiday |
+| Key prepositions of place | just remember bro                                                                                                                  |
+
+# Practise
+
+## A If a word or phrase in bold is correct, put a tick. If it is incorrect, rewqrite it correctly on the line, including all possibilities
+
+1. tick
+2. are going to
+3. tick
+4. tick
+5. tick
+6. tick
+7. Will you
+8. going to try
+9. tick
+10. tick
+11. tick
+12. Are you going to
+
+## B Circle the correct word or phrase. If both options are correct, circle both.
+
+1. We aren't/ We're not
+2. i'm going to do
+3. is singing
+4. going to buy
+5. being
+6. Does
+7. Are they going to broadcast
+8. Do they broadcast/ Are they broadcasting
+9. leaves
+10. Does the resturant open/ Is the restaurant opening
+
+## C Write a word or short phrase in each gap
+
+1. have been
+2. be
+3. am going to
+4. be
+5. have been
